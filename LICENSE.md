@@ -1,4 +1,4 @@
-# 
+# VIP uniswap trading bot ferramentas for Mac OS | Ultimato uniswap trading bot ferramentas for PC Windows. Featuring API de exchange centralizada and estratégia de reversão à média — optimized for maximum performance.
 
 
 
